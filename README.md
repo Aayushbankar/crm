@@ -355,6 +355,12 @@ start http://localhost/CRM/login.php
 
 ---
 
+## Documentation
+
+- **[HANDOVER.md](HANDOVER.md)** — Full project handover: deliverables, security notes, known limitations, future enhancements, maintenance guide
+
+---
+
 ## License
 
-This project is for internal/educational use.
+This project is licensed under the [MIT License](LICENSE).
