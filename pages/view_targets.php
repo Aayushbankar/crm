@@ -1,43 +1,42 @@
-x<x?xpxhxpx
-x$xrxexsxuxlxtx+x=x+x$xcxoxnxnx-x>xqxuxexrxyx(x"xSxExLxExCxTx+xtx.xixdx,x+xtx.xsxaxlxexsx_xuxsxexrx_xixdx,x+xsx.xnxaxmxex+xAxSx+xuxsxexrx_xnxaxmxex,x+xtx.xmxoxnxtxhx,x+xtx.xtxaxrxgxextx_xaxmxoxuxnxtx+xFxRxOxMx+xtxaxrxgxextxsx+xtx+xLxExFxTx+xJxOxIxNx+xsxaxlxexsx_xuxsxexrxsx+xsx+xOxNx+xtx.xsxaxlxexsx_xuxsxexrx_xixdx+x=x+xsx.xixdx+xOxRxDxExRx+xBxYx+xtx.xixdx+xDxExSxCx"x)x;x
-x?x>x
-x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx"x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx"x>x
-x+x+x+x+x+x+x+x+x<xhx2x>xAxlxlx+xTxaxrxgxextxsx<x/xhx2x>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx-xaxcxtxixoxnxsx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xsxexaxrxcxhx-xbxoxxx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xsxexaxrxcxhx-xixcxoxnx"x>x&x#x8x9x8x1x;x<x/xsxpxaxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xcxlxaxsxsx=x"xtxaxbxlxex-xsxexaxrxcxhx"x+xdxaxtxax-xtxaxbxlxex=x"xtxbxlx"x+xpxlxaxcxexhxoxlxdxexrx=x"xSxexaxrxcxhx.x.x.x"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+xbxaxdxgxex-xixnxfxox+xrxexcxoxrxdx-xcxoxuxnxtx"x>x<x?x=x+x$xrxexsxuxlxtx-x>xnxuxmx_xrxoxwxsx+x?x>x<x/xsxpxaxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xax+xhxrxexfx=x"xdxaxsxhxbxoxaxrxdx.xpxhxpx?xpxaxgxex=xaxdxdx_xtxaxrxgxextx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xpxrxixmxaxrxyx+xbxtxnx-xsxmx"x>x+x+xAxdxdx<x/xax>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xixfx+x(x$xrxexsxuxlxtx-x>xnxuxmx_xrxoxwxsx+x>x+x0x)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xtxaxbxlxex-xwxrxaxpxpxexrx"x>x
-x+x+x+x+x+x+x+x+x<xtxaxbxlxex+xixdx=x"xtxbxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxhxexaxdx>x<xtxrx>x<xtxhx>xIxDx<x/xtxhx>x<xtxhx>xSxaxlxexsx+xUxsxexrx<x/xtxhx>x<xtxhx>xMxoxnxtxhx<x/xtxhx>x<xtxhx>xTxaxrxgxextx<x/xtxhx>x<xtxhx>xAxcxtxixoxnxsx<x/xtxhx>x<x/xtxrx>x<x/xtxhxexaxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxbxoxdxyx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xwxhxixlxex+x(x$xrxoxwx+x=x+x$xrxexsxuxlxtx-x>xfxextxcxhx_xaxsxsxoxcx(x)x)x:x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxrx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx+xcxlxaxsxsx=x"xixdx-xcxoxlx"x>x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xsxtxrxoxnxgx>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xrxoxwx[x'xuxsxexrx_xnxaxmxex'x]x+x?x:x+x'xUxsxexrx+x#x'x.x$xrxoxwx[x'xsxaxlxexsx_xuxsxexrx_xixdx'x]x)x+x?x>x<x/xsxtxrxoxnxgx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+xbxaxdxgxex-xpxuxrxpxlxex"x>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xrxoxwx[x'xmxoxnxtxhx'x]x)x+x?x>x<x/xsxpxaxnx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx+xsxtxyxlxex=x"xfxoxnxtx-xwxexixgxhxtx:x6x0x0x;x"x>x&x#x8x3x7x7x;x<x?x=x+xnxuxmxbxexrx_xfxoxrxmxaxtx(x(xfxlxoxaxtx)x$xrxoxwx[x'xtxaxrxgxextx_xaxmxoxuxnxtx'x]x)x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xdxixvx+xcxlxaxsxsx=x"xaxcxtxixoxnxsx-xcxexlxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xbxuxtxtxoxnx+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xdxaxnxgxexrx+xbxtxnx-xixcxoxnx"x+xoxnxcxlxixcxkx=x"xcxoxnxfxixrxmxDxexlxextxex(x'xdxaxsxhxbxoxaxrxdx.xpxhxpx?xdxexlxextxex=x1x&xtxaxbxlxex=xtxaxrxgxextxsx&xixdx=x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x'x)x"x+xtxixtxlxex=x"xDxexlxextxex"x>x&xtxixmxexsx;x<x/xbxuxtxtxoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xtxrx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxwxhxixlxex;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xtxbxoxdxyx>x
-x+x+x+x+x+x+x+x+x<x/xtxaxbxlxex>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xexlxsxex:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xexmxpxtxyx-xsxtxaxtxex"x>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xexmxpxtxyx-xixcxoxnx"x>xTx<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xhx3x>xNxox+xtxaxrxgxextxsx<x/xhx3x>x
-x+x+x+x+x+x+x+x+x<xpx>xSxextx+xyxoxuxrx+xfxixrxsxtx+xsxaxlxexsx+xtxaxrxgxextx.x<x/xpx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x<x/xdxixvx>x
-x
+<?php
+$result = $conn->query("SELECT t.id, t.sales_user_id, s.name AS user_name, t.month, t.target_amount FROM targets t LEFT JOIN sales_users s ON t.sales_user_id = s.id ORDER BY t.id DESC");
+?>
+<div class="card">
+    <div class="card-header">
+        <h2>All Targets</h2>
+        <div class="card-header-actions">
+            <div class="search-box">
+                <span class="search-icon">&#8981;</span>
+                <input type="text" class="table-search" data-table="tbl" placeholder="Search...">
+            </div>
+            <span class="badge badge-info record-count"><?= $result->num_rows ?></span>
+            <a href="dashboard.php?page=add_target" class="btn btn-primary btn-sm">+ Add</a>
+        </div>
+    </div>
+    <?php if ($result->num_rows > 0): ?>
+    <div class="table-wrapper">
+        <table id="tbl">
+            <thead><tr><th>ID</th><th>Sales User</th><th>Month</th><th>Target</th><th>Actions</th></tr></thead>
+            <tbody>
+                <?php while ($row = $result->fetch_assoc()): ?>
+                <tr>
+                    <td class="id-col"><?= $row['id'] ?></td>
+                    <td><strong><?= htmlspecialchars($row['user_name'] ?: 'User #'.$row['sales_user_id']) ?></strong></td>
+                    <td><span class="badge badge-purple"><?= htmlspecialchars($row['month']) ?></span></td>
+                    <td style="font-weight:600;">&#8377;<?= number_format((float)$row['target_amount']) ?></td>
+                    <td><div class="actions-cell">
+                        <button class="btn btn-danger btn-icon" onclick="confirmDelete('dashboard.php?delete=1&table=targets&id=<?= $row['id'] ?>')" title="Delete">&times;</button>
+                    </div></td>
+                </tr>
+                <?php endwhile; ?>
+            </tbody>
+        </table>
+    </div>
+    <?php else: ?>
+    <div class="empty-state">
+        <div class="empty-icon">T</div>
+        <h3>No targets</h3>
+        <p>Set your first sales target.</p>
+    </div>
+    <?php endif; ?>
+</div>

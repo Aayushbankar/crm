@@ -1,43 +1,42 @@
-x<x?xpxhxpx
-x$xrxexsxuxlxtx+x=x+x$xcxoxnxnx-x>xqxuxexrxyx(x"xSxExLxExCxTx+xixdx,x+xnxaxmxex,x+xexmxaxixlx,x+xmxoxbxixlxex+xFxRxOxMx+xsxaxlxexsx_xuxsxexrxsx+xOxRxDxExRx+xBxYx+xixdx+xDxExSxCx"x)x;x
-x?x>x
-x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx"x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx"x>x
-x+x+x+x+x+x+x+x+x<xhx2x>xAxlxlx+xSxaxlxexsx+xUxsxexrxsx<x/xhx2x>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx-xaxcxtxixoxnxsx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xsxexaxrxcxhx-xbxoxxx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xsxexaxrxcxhx-xixcxoxnx"x>x&x#x8x9x8x1x;x<x/xsxpxaxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xcxlxaxsxsx=x"xtxaxbxlxex-xsxexaxrxcxhx"x+xdxaxtxax-xtxaxbxlxex=x"xtxbxlx"x+xpxlxaxcxexhxoxlxdxexrx=x"xSxexaxrxcxhx.x.x.x"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+xbxaxdxgxex-xixnxfxox+xrxexcxoxrxdx-xcxoxuxnxtx"x>x<x?x=x+x$xrxexsxuxlxtx-x>xnxuxmx_xrxoxwxsx+x?x>x<x/xsxpxaxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xax+xhxrxexfx=x"xdxaxsxhxbxoxaxrxdx.xpxhxpx?xpxaxgxex=xaxdxdx_xsxaxlxexsx_xuxsxexrx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xpxrxixmxaxrxyx+xbxtxnx-xsxmx"x>x+x+xAxdxdx<x/xax>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xixfx+x(x$xrxexsxuxlxtx-x>xnxuxmx_xrxoxwxsx+x>x+x0x)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xtxaxbxlxex-xwxrxaxpxpxexrx"x>x
-x+x+x+x+x+x+x+x+x<xtxaxbxlxex+xixdx=x"xtxbxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxhxexaxdx>x<xtxrx>x<xtxhx>xIxDx<x/xtxhx>x<xtxhx>xNxaxmxex<x/xtxhx>x<xtxhx>xExmxaxixlx<x/xtxhx>x<xtxhx>xMxoxbxixlxex<x/xtxhx>x<xtxhx>xAxcxtxixoxnxsx<x/xtxhx>x<x/xtxrx>x<x/xtxhxexaxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxbxoxdxyx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xwxhxixlxex+x(x$xrxoxwx+x=x+x$xrxexsxuxlxtx-x>xfxextxcxhx_xaxsxsxoxcx(x)x)x:x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxrx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx+xcxlxaxsxsx=x"xixdx-xcxoxlx"x>x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xsxtxrxoxnxgx>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xrxoxwx[x'xnxaxmxex'x]x)x+x?x>x<x/xsxtxrxoxnxgx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xrxoxwx[x'xexmxaxixlx'x]x)x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xrxoxwx[x'xmxoxbxixlxex'x]x)x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xdxixvx+xcxlxaxsxsx=x"xaxcxtxixoxnxsx-xcxexlxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xbxuxtxtxoxnx+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xdxaxnxgxexrx+xbxtxnx-xixcxoxnx"x+xoxnxcxlxixcxkx=x"xcxoxnxfxixrxmxDxexlxextxex(x'xdxaxsxhxbxoxaxrxdx.xpxhxpx?xdxexlxextxex=x1x&xtxaxbxlxex=xsxaxlxexsx_xuxsxexrxsx&xixdx=x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x'x)x"x+xtxixtxlxex=x"xDxexlxextxex"x>x&xtxixmxexsx;x<x/xbxuxtxtxoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xtxrx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxwxhxixlxex;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xtxbxoxdxyx>x
-x+x+x+x+x+x+x+x+x<x/xtxaxbxlxex>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xexlxsxex:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xexmxpxtxyx-xsxtxaxtxex"x>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xexmxpxtxyx-xixcxoxnx"x>xUx<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xhx3x>xNxox+xsxaxlxexsx+xuxsxexrxsx<x/xhx3x>x
-x+x+x+x+x+x+x+x+x<xpx>xAxdxdx+xyxoxuxrx+xfxixrxsxtx+xsxaxlxexsx+xuxsxexrx.x<x/xpx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x<x/xdxixvx>x
-x
+<?php
+$result = $conn->query("SELECT id, name, email, mobile FROM sales_users ORDER BY id DESC");
+?>
+<div class="card">
+    <div class="card-header">
+        <h2>All Sales Users</h2>
+        <div class="card-header-actions">
+            <div class="search-box">
+                <span class="search-icon">&#8981;</span>
+                <input type="text" class="table-search" data-table="tbl" placeholder="Search...">
+            </div>
+            <span class="badge badge-info record-count"><?= $result->num_rows ?></span>
+            <a href="dashboard.php?page=add_sales_user" class="btn btn-primary btn-sm">+ Add</a>
+        </div>
+    </div>
+    <?php if ($result->num_rows > 0): ?>
+    <div class="table-wrapper">
+        <table id="tbl">
+            <thead><tr><th>ID</th><th>Name</th><th>Email</th><th>Mobile</th><th>Actions</th></tr></thead>
+            <tbody>
+                <?php while ($row = $result->fetch_assoc()): ?>
+                <tr>
+                    <td class="id-col"><?= $row['id'] ?></td>
+                    <td><strong><?= htmlspecialchars($row['name']) ?></strong></td>
+                    <td><?= htmlspecialchars($row['email']) ?></td>
+                    <td><?= htmlspecialchars($row['mobile']) ?></td>
+                    <td><div class="actions-cell">
+                        <button class="btn btn-danger btn-icon" onclick="confirmDelete('dashboard.php?delete=1&table=sales_users&id=<?= $row['id'] ?>')" title="Delete">&times;</button>
+                    </div></td>
+                </tr>
+                <?php endwhile; ?>
+            </tbody>
+        </table>
+    </div>
+    <?php else: ?>
+    <div class="empty-state">
+        <div class="empty-icon">U</div>
+        <h3>No sales users</h3>
+        <p>Add your first sales user.</p>
+    </div>
+    <?php endif; ?>
+</div>

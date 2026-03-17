@@ -1,64 +1,50 @@
-x<x?xpxhxpx
-x$xsxuxcxcxexsxsx+x=x+x'x'x;x
-x$xexrxrxoxrx+x=x+x'x'x;x
-x
-x/x/x+xFxextxcxhx+xlxexaxdxsx+xfxoxrx+xdxrxoxpxdxoxwxnx
-x$xlxexaxdxsx_xrxexsxuxlxtx+x=x+x$xcxoxnxnx-x>xqxuxexrxyx(x"xSxExLxExCxTx+xixdx,x+xnxaxmxex+xFxRxOxMx+xlxexaxdxsx+xOxRxDxExRx+xBxYx+xnxaxmxex"x)x;x
-x
-xixfx+x(x$x_xSxExRxVxExRx[x'xRxExQxUxExSxTx_xMxExTxHxOxDx'x]x+x=x=x=x+x'xPxOxSxTx'x)x+x{x
-x+x+x+x+x$xlxexaxdx_xixdx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xlxexaxdx_xixdx'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xfxoxlxlxoxwxuxpx_xdxaxtxex+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xfxoxlxlxoxwxuxpx_xdxaxtxex'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xrxexmxaxrxkxsx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xrxexmxaxrxkxsx'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xcxrxexaxtxexdx_xaxtx+x=x+xdxaxtxex(x'xYx-xmx-xdx+xHx:xix:xsx'x)x;x
-x
-x+x+x+x+xixfx+x(xexmxpxtxyx(x$xlxexaxdx_xixdx)x+x|x|x+xexmxpxtxyx(x$xfxoxlxlxoxwxuxpx_xdxaxtxex)x)x+x{x
-x+x+x+x+x+x+x+x+x$xexrxrxoxrx+x=x+x'xLxexaxdx+xaxnxdx+xfxoxlxlxoxwxuxpx+xdxaxtxex+xaxrxex+xrxexqxuxixrxexdx.x'x;x
-x+x+x+x+x}x+xexlxsxex+x{x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx+x=x+x$xcxoxnxnx-x>xpxrxexpxaxrxex(x"xIxNxSxExRxTx+xIxNxTxOx+xfxoxlxlxoxwxuxpxsx+x(xlxexaxdx_xixdx,x+xfxoxlxlxoxwxuxpx_xdxaxtxex,x+xrxexmxaxrxkxsx,x+xcxrxexaxtxexdx_xaxtx)x+xVxAxLxUxExSx+x(x?x,x+x?x,x+x?x,x+x?x)x"x)x;x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx-x>xbxixnxdx_xpxaxrxaxmx(x"xsxsxsxsx"x,x+x$xlxexaxdx_xixdx,x+x$xfxoxlxlxoxwxuxpx_xdxaxtxex,x+x$xrxexmxaxrxkxsx,x+x$xcxrxexaxtxexdx_xaxtx)x;x
-x+x+x+x+x+x+x+x+xixfx+x(x$xsxtxmxtx-x>xexxxexcxuxtxex(x)x)x+x{x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xsxuxcxcxexsxsx+x=x+x'xFxoxlxlxoxwxuxpx+xaxdxdxexdx+xsxuxcxcxexsxsxfxuxlxlxyx!x'x;x
-x+x+x+x+x+x+x+x+x}x+xexlxsxex+x{x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xexrxrxoxrx+x=x+x'xExrxrxoxrx+xaxdxdxixnxgx+xfxoxlxlxoxwxuxpx:x+x'x+x.x+x$xcxoxnxnx-x>xexrxrxoxrx;x
-x+x+x+x+x+x+x+x+x}x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx-x>xcxlxoxsxex(x)x;x
-x+x+x+x+x}x
-x}x
-x?x>x
-x
-x<x?xpxhxpx+xixfx+x(x$xsxuxcxcxexsxsx)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xsxuxcxcxexsxsx"x>x<xsxpxaxnx>xâxœx…x<x/xsxpxaxnx>x+x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xsxuxcxcxexsxsx)x+x?x>x<x/xdxixvx>x
-x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x<x?xpxhxpx+xixfx+x(x$xexrxrxoxrx)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xdxaxnxgxexrx"x>x<xsxpxaxnx>xâxšx xïx¸xx<x/xsxpxaxnx>x+x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xexrxrxoxrx)x+x?x>x<x/xdxixvx>x
-x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x
-x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx"x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx"x>x
-x+x+x+x+x+x+x+x+x<xhx2x>xAxdxdx+xNxexwx+xFxoxlxlxoxwxuxpx<x/xhx2x>x
-x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+xbxaxdxgxex-xixnxfxox"x>xIxNxSxExRxTx<x/xsxpxaxnx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<xfxoxrxmx+xmxextxhxoxdx=x"xPxOxSxTx"x+xdxaxtxax-xvxaxlxixdxaxtxex>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xrxoxwx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xlxexaxdx_xixdx"x>xLxexaxdx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxexlxexcxtx+xixdx=x"xlxexaxdx_xixdx"x+xnxaxmxex=x"xlxexaxdx_xixdx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xoxpxtxixoxnx+xvxaxlxuxex=x"x"x>xSxexlxexcxtx+xax+xlxexaxdx<x/xoxpxtxixoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xixfx+x(x$xlxexaxdxsx_xrxexsxuxlxtx)x:x+xwxhxixlxex+x(x$xlxexaxdx+x=x+x$xlxexaxdxsx_xrxexsxuxlxtx-x>xfxextxcxhx_xaxsxsxoxcx(x)x)x:x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xoxpxtxixoxnx+xvxaxlxuxex=x"x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xlxexaxdx[x'xixdx'x]x)x+x?x>x"x>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xlxexaxdx[x'xixdx'x]x+x.x+x'x+xâx€x”x+x'x+x.x+x$xlxexaxdx[x'xnxaxmxex'x]x)x+x?x>x<x/xoxpxtxixoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxwxhxixlxex;x+xexnxdxixfx;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xsxexlxexcxtx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xfxoxlxlxoxwxuxpx_xdxaxtxex"x>xFxoxlxlxoxwxuxpx+xDxaxtxex<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xdxaxtxex"x+xixdx=x"xfxoxlxlxoxwxuxpx_xdxaxtxex"x+xnxaxmxex=x"xfxoxlxlxoxwxuxpx_xdxaxtxex"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xrxexmxaxrxkxsx"x>xRxexmxaxrxkxsx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxexxxtxaxrxexax+xixdx=x"xrxexmxaxrxkxsx"x+xnxaxmxex=x"xrxexmxaxrxkxsx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xrxoxwxsx=x"x4x"x+xpxlxaxcxexhxoxlxdxexrx=x"xExnxtxexrx+xfxoxlxlxoxwxuxpx+xrxexmxaxrxkxsx"x>x<x/xtxexxxtxaxrxexax>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xbxuxtxtxoxnx+xtxyxpxex=x"xsxuxbxmxixtx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xpxrxixmxaxrxyx"x>xâxžx•x+xAxdxdx+xFxoxlxlxoxwxuxpx<x/xbxuxtxtxoxnx>x
-x+x+x+x+x<x/xfxoxrxmx>x
-x<x/xdxixvx>x
-x
+<?php
+$success = '';
+$error = '';
+$leads_result = $conn->query("SELECT id, name FROM leads ORDER BY name");
+if ($_SERVER['REQUEST_METHOD'] === 'POST') {
+    $lead_id = trim($_POST['lead_id'] ?? '');
+    $followup_date = trim($_POST['followup_date'] ?? '');
+    $remarks = trim($_POST['remarks'] ?? '');
+    $created_at = date('Y-m-d H:i:s');
+    if (empty($lead_id) || empty($followup_date)) {
+        $error = 'Lead and date are required.';
+    } else {
+        $stmt = $conn->prepare("INSERT INTO followups (lead_id, followup_date, remarks, created_at) VALUES (?, ?, ?, ?)");
+        $stmt->bind_param("ssss", $lead_id, $followup_date, $remarks, $created_at);
+        if ($stmt->execute()) { $success = 'Followup added!'; }
+        else { $error = 'Error: ' . $conn->error; }
+        $stmt->close();
+    }
+}
+?>
+<?php if ($success): ?><div class="alert alert-success"><?= htmlspecialchars($success) ?></div><?php endif; ?>
+<?php if ($error): ?><div class="alert alert-danger"><?= htmlspecialchars($error) ?></div><?php endif; ?>
+<div class="card">
+    <div class="card-header">
+        <h2>Add New Followup</h2>
+        <span class="badge badge-info">INSERT</span>
+    </div>
+    <form method="POST" data-validate>
+        <div class="form-row">
+            <div class="form-group">
+                <label for="lead_id">Lead</label>
+                <select id="lead_id" name="lead_id" class="form-control" required>
+                    <option value="">Select a lead</option>
+                    <?php if ($leads_result): while ($lead = $leads_result->fetch_assoc()): ?>
+                        <option value="<?= $lead['id'] ?>"><?= htmlspecialchars($lead['id'] . ' - ' . $lead['name']) ?></option>
+                    <?php endwhile; endif; ?>
+                </select>
+            </div>
+            <div class="form-group">
+                <label for="followup_date">Followup Date</label>
+                <input type="date" id="followup_date" name="followup_date" class="form-control" required>
+            </div>
+        </div>
+        <div class="form-group">
+            <label for="remarks">Remarks</label>
+            <textarea id="remarks" name="remarks" class="form-control" placeholder="Enter remarks"></textarea>
+        </div>
+        <button type="submit" class="btn btn-primary">+ Add Followup</button>
+    </form>
+</div>

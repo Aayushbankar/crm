@@ -1,115 +1,69 @@
-x<x?xpxhxpx
-x$xsxuxcxcxexsxsx+x=x+x'x'x;x
-x$xexrxrxoxrx+x=x+x'x'x;x
-x$xlxexaxdx+x=x+xnxuxlxlx;x
-x
-x$xixdx+x=x+xixnxtxvxaxlx(x$x_xGxExTx[x'xixdx'x]x+x?x?x+x0x)x;x
-xixfx+x(x$xixdx+x<x=x+x0x)x+x{x
-x+x+x+x+xexcxhxox+x'x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xdxaxnxgxexrx"x>xIxnxvxaxlxixdx+xlxexaxdx+xIxDx.x<x/xdxixvx>x'x;x
-x+x+x+x+xrxextxuxrxnx;x
-x}x
-x
-x/x/x+xFxextxcxhx+xsxaxlxexsx+xuxsxexrxsx+xfxoxrx+xdxrxoxpxdxoxwxnx
-x$xsxaxlxexsx_xuxsxexrxsx_xrxexsxuxlxtx+x=x+x$xcxoxnxnx-x>xqxuxexrxyx(x"xSxExLxExCxTx+xixdx,x+xnxaxmxex+xFxRxOxMx+xsxaxlxexsx_xuxsxexrxsx+xOxRxDxExRx+xBxYx+xnxaxmxex"x)x;x
-x
-x/x/x+xFxextxcxhx+xexxxixsxtxixnxgx+xlxexaxdx
-x$xsxtxmxtx+x=x+x$xcxoxnxnx-x>xpxrxexpxaxrxex(x"xSxExLxExCxTx+x*x+xFxRxOxMx+xlxexaxdxsx+xWxHxExRxEx+xixdx+x=x+x?x"x)x;x
-x$xsxtxmxtx-x>xbxixnxdx_xpxaxrxaxmx(x"xix"x,x+x$xixdx)x;x
-x$xsxtxmxtx-x>xexxxexcxuxtxex(x)x;x
-x$xlxexaxdx+x=x+x$xsxtxmxtx-x>xgxextx_xrxexsxuxlxtx(x)x-x>xfxextxcxhx_xaxsxsxoxcx(x)x;x
-x$xsxtxmxtx-x>xcxlxoxsxex(x)x;x
-x
-xixfx+x(x!x$xlxexaxdx)x+x{x
-x+x+x+x+xexcxhxox+x'x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xdxaxnxgxexrx"x>xLxexaxdx+xnxoxtx+xfxoxuxnxdx.x<x/xdxixvx>x'x;x
-x+x+x+x+xrxextxuxrxnx;x
-x}x
-x
-xixfx+x(x$x_xSxExRxVxExRx[x'xRxExQxUxExSxTx_xMxExTxHxOxDx'x]x+x=x=x=x+x'xPxOxSxTx'x)x+x{x
-x+x+x+x+x$xnxaxmxex+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xnxaxmxex'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xmxoxbxixlxex+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xmxoxbxixlxex'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xexmxaxixlx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xexmxaxixlx'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xsxoxuxrxcxex+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xsxoxuxrxcxex'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xsxtxaxtxuxsx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xsxtxaxtxuxsx'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xaxsxsxixgxnxexdx_xtxox+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xaxsxsxixgxnxexdx_xtxox'x]x+x?x?x+x'x'x)x;x
-x
-x+x+x+x+xixfx+x(xexmxpxtxyx(x$xnxaxmxex)x+x|x|x+xexmxpxtxyx(x$xmxoxbxixlxex)x)x+x{x
-x+x+x+x+x+x+x+x+x$xexrxrxoxrx+x=x+x'xNxaxmxex+xaxnxdx+xmxoxbxixlxex+xaxrxex+xrxexqxuxixrxexdx.x'x;x
-x+x+x+x+x}x+xexlxsxex+x{x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx+x=x+x$xcxoxnxnx-x>xpxrxexpxaxrxex(x"xUxPxDxAxTxEx+xlxexaxdxsx+xSxExTx+xnxaxmxex=x?x,x+xmxoxbxixlxex=x?x,x+xexmxaxixlx=x?x,x+xsxoxuxrxcxex=x?x,x+xsxtxaxtxuxsx=x?x,x+xaxsxsxixgxnxexdx_xtxox=x?x+xWxHxExRxEx+xixdx=x?x"x)x;x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx-x>xbxixnxdx_xpxaxrxaxmx(x"xsxsxsxsxsxsxix"x,x+x$xnxaxmxex,x+x$xmxoxbxixlxex,x+x$xexmxaxixlx,x+x$xsxoxuxrxcxex,x+x$xsxtxaxtxuxsx,x+x$xaxsxsxixgxnxexdx_xtxox,x+x$xixdx)x;x
-x+x+x+x+x+x+x+x+xixfx+x(x$xsxtxmxtx-x>xexxxexcxuxtxex(x)x)x+x{x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xsxuxcxcxexsxsx+x=x+x'xLxexaxdx+xuxpxdxaxtxexdx+xsxuxcxcxexsxsxfxuxlxlxyx!x'x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x/x/x+xRxexfxrxexsxhx+xdxaxtxax
-x+x+x+x+x+x+x+x+x+x+x+x+x$xsxtxmxtx2x+x=x+x$xcxoxnxnx-x>xpxrxexpxaxrxex(x"xSxExLxExCxTx+x*x+xFxRxOxMx+xlxexaxdxsx+xWxHxExRxEx+xixdx+x=x+x?x"x)x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xsxtxmxtx2x-x>xbxixnxdx_xpxaxrxaxmx(x"xix"x,x+x$xixdx)x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xsxtxmxtx2x-x>xexxxexcxuxtxex(x)x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xlxexaxdx+x=x+x$xsxtxmxtx2x-x>xgxextx_xrxexsxuxlxtx(x)x-x>xfxextxcxhx_xaxsxsxoxcx(x)x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xsxtxmxtx2x-x>xcxlxoxsxex(x)x;x
-x+x+x+x+x+x+x+x+x}x+xexlxsxex+x{x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xexrxrxoxrx+x=x+x'xExrxrxoxrx+xuxpxdxaxtxixnxgx+xlxexaxdx:x+x'x+x.x+x$xcxoxnxnx-x>xexrxrxoxrx;x
-x+x+x+x+x+x+x+x+x}x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx-x>xcxlxoxsxex(x)x;x
-x+x+x+x+x}x
-x}x
-x?x>x
-x
-x<x?xpxhxpx+xixfx+x(x$xsxuxcxcxexsxsx)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xsxuxcxcxexsxsx"x>x<xsxpxaxnx>xâxœx…x<x/xsxpxaxnx>x+x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xsxuxcxcxexsxsx)x+x?x>x<x/xdxixvx>x
-x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x<x?xpxhxpx+xixfx+x(x$xexrxrxoxrx)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xdxaxnxgxexrx"x>x<xsxpxaxnx>xâxšx xïx¸xx<x/xsxpxaxnx>x+x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xexrxrxoxrx)x+x?x>x<x/xdxixvx>x
-x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x
-x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx"x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx"x>x
-x+x+x+x+x+x+x+x+x<xhx2x>xExdxixtx+xLxexaxdx+x#x<x?x=x+x$xixdx+x?x>x<x/xhx2x>x
-x+x+x+x+x+x+x+x+x<xax+xhxrxexfx=x"xdxaxsxhxbxoxaxrxdx.xpxhxpx?xpxaxgxex=xvxixexwx_xlxexaxdxsx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xoxuxtxlxixnxex+xbxtxnx-xsxmx"x>xâx†xx+xBxaxcxkx+xtxox+xLxexaxdxsx<x/xax>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<xfxoxrxmx+xmxextxhxoxdx=x"xPxOxSxTx"x+xdxaxtxax-xvxaxlxixdxaxtxex>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xrxoxwx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xnxaxmxex"x>xNxaxmxex+x<xsxpxaxnx+xcxlxaxsxsx=x"xrxexqxuxixrxexdx"x>x*x<x/xsxpxaxnx>x<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xixdx=x"xnxaxmxex"x+xnxaxmxex=x"xnxaxmxex"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xvxaxlxuxex=x"x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xlxexaxdx[x'xnxaxmxex'x]x)x+x?x>x"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xmxoxbxixlxex"x>xMxoxbxixlxex+x<xsxpxaxnx+xcxlxaxsxsx=x"xrxexqxuxixrxexdx"x>x*x<x/xsxpxaxnx>x<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xixdx=x"xmxoxbxixlxex"x+xnxaxmxex=x"xmxoxbxixlxex"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xvxaxlxuxex=x"x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xlxexaxdx[x'xmxoxbxixlxex'x]x)x+x?x>x"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xrxoxwx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xexmxaxixlx"x>xExmxaxixlx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xexmxaxixlx"x+xixdx=x"xexmxaxixlx"x+xnxaxmxex=x"xexmxaxixlx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xvxaxlxuxex=x"x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xlxexaxdx[x'xexmxaxixlx'x]x)x+x?x>x"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xsxoxuxrxcxex"x>xSxoxuxrxcxex<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxexlxexcxtx+xixdx=x"xsxoxuxrxcxex"x+xnxaxmxex=x"xsxoxuxrxcxex"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xfxoxrxexaxcxhx+x(x[x'x'x,x+x'xWxexbxsxixtxex'x,x+x'xRxexfxexrxrxaxlx'x,x+x'xSxoxcxixaxlx+xMxexdxixax'x,x+x'xCxoxlxdx+xCxaxlxlx'x,x+x'xExmxaxixlx+xCxaxmxpxaxixgxnx'x,x+x'xOxtxhxexrx'x]x+xaxsx+x$xoxpxtx)x:x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xoxpxtxixoxnx+xvxaxlxuxex=x"x<x?x=x+x$xoxpxtx+x?x>x"x+x<x?x=x+x$xlxexaxdx[x'xsxoxuxrxcxex'x]x+x=x=x=x+x$xoxpxtx+x?x+x'xsxexlxexcxtxexdx'x+x:x+x'x'x+x?x>x>x<x?x=x+x$xoxpxtx+x?x:x+x'xSxexlxexcxtx+xsxoxuxrxcxex'x+x?x>x<x/xoxpxtxixoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxfxoxrxexaxcxhx;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xsxexlxexcxtx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xrxoxwx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xsxtxaxtxuxsx"x>xSxtxaxtxuxsx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxexlxexcxtx+xixdx=x"xsxtxaxtxuxsx"x+xnxaxmxex=x"xsxtxaxtxuxsx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xfxoxrxexaxcxhx+x(x[x'xNxexwx'x,x+x'xCxoxnxtxaxcxtxexdx'x,x+x'xQxuxaxlxixfxixexdx'x,x+x'xCxoxnxvxexrxtxexdx'x,x+x'xLxoxsxtx'x]x+xaxsx+x$xoxpxtx)x:x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xoxpxtxixoxnx+xvxaxlxuxex=x"x<x?x=x+x$xoxpxtx+x?x>x"x+x<x?x=x+x$xlxexaxdx[x'xsxtxaxtxuxsx'x]x+x=x=x=x+x$xoxpxtx+x?x+x'xsxexlxexcxtxexdx'x+x:x+x'x'x+x?x>x>x<x?x=x+x$xoxpxtx+x?x>x<x/xoxpxtxixoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxfxoxrxexaxcxhx;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xsxexlxexcxtx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xaxsxsxixgxnxexdx_xtxox"x>xAxsxsxixgxnxexdx+xTxox<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxexlxexcxtx+xixdx=x"xaxsxsxixgxnxexdx_xtxox"x+xnxaxmxex=x"xaxsxsxixgxnxexdx_xtxox"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xoxpxtxixoxnx+xvxaxlxuxex=x"x"x>xUxnxaxsxsxixgxnxexdx<x/xoxpxtxixoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xixfx+x(x$xsxaxlxexsx_xuxsxexrxsx_xrxexsxuxlxtx)x:x+xwxhxixlxex+x(x$xuxsxexrx+x=x+x$xsxaxlxexsx_xuxsxexrxsx_xrxexsxuxlxtx-x>xfxextxcxhx_xaxsxsxoxcx(x)x)x:x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xoxpxtxixoxnx+xvxaxlxuxex=x"x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xuxsxexrx[x'xnxaxmxex'x]x)x+x?x>x"x+x<x?x=x+x$xlxexaxdx[x'xaxsxsxixgxnxexdx_xtxox'x]x+x=x=x=x+x$xuxsxexrx[x'xnxaxmxex'x]x+x?x+x'xsxexlxexcxtxexdx'x+x:x+x'x'x+x?x>x>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xuxsxexrx[x'xnxaxmxex'x]x)x+x?x>x<x/xoxpxtxixoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxwxhxixlxex;x+xexnxdxixfx;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xsxexlxexcxtx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xbxuxtxtxoxnx+xtxyxpxex=x"xsxuxbxmxixtx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xpxrxixmxaxrxyx"x>xðxŸx’x¾x+xUxpxdxaxtxex+xLxexaxdx<x/xbxuxtxtxoxnx>x
-x+x+x+x+x<x/xfxoxrxmx>x
-x<x/xdxixvx>x
-x
+<?php
+$success = '';
+$error = '';
+$id = intval($_GET['id'] ?? 0);
+if ($id <= 0) { echo '<div class="alert alert-danger">Invalid lead ID.</div>'; return; }
+$sales_users_result = $conn->query("SELECT id, name FROM sales_users ORDER BY name");
+$stmt = $conn->prepare("SELECT * FROM leads WHERE id = ?");
+$stmt->bind_param("i", $id); $stmt->execute();
+$lead = $stmt->get_result()->fetch_assoc(); $stmt->close();
+if (!$lead) { echo '<div class="alert alert-danger">Lead not found.</div>'; return; }
+if ($_SERVER['REQUEST_METHOD'] === 'POST') {
+    $name = trim($_POST['name'] ?? ''); $mobile = trim($_POST['mobile'] ?? '');
+    $email = trim($_POST['email'] ?? ''); $source = trim($_POST['source'] ?? '');
+    $status = trim($_POST['status'] ?? ''); $assigned_to = trim($_POST['assigned_to'] ?? '');
+    if (empty($name) || empty($mobile)) { $error = 'Name and mobile are required.'; }
+    else {
+        $stmt = $conn->prepare("UPDATE leads SET name=?, mobile=?, email=?, source=?, status=?, assigned_to=? WHERE id=?");
+        $stmt->bind_param("ssssssi", $name, $mobile, $email, $source, $status, $assigned_to, $id);
+        if ($stmt->execute()) {
+            $success = 'Lead updated!';
+            $st2 = $conn->prepare("SELECT * FROM leads WHERE id = ?"); $st2->bind_param("i", $id); $st2->execute();
+            $lead = $st2->get_result()->fetch_assoc(); $st2->close();
+        } else { $error = 'Error: ' . $conn->error; }
+        $stmt->close();
+    }
+}
+?>
+<?php if ($success): ?><div class="alert alert-success"><?= htmlspecialchars($success) ?></div><?php endif; ?>
+<?php if ($error): ?><div class="alert alert-danger"><?= htmlspecialchars($error) ?></div><?php endif; ?>
+<div class="card">
+    <div class="card-header">
+        <h2>Edit Lead #<?= $id ?></h2>
+        <a href="dashboard.php?page=view_leads" class="btn btn-outline btn-sm">Back to Leads</a>
+    </div>
+    <form method="POST" data-validate>
+        <div class="form-row">
+            <div class="form-group"><label for="name">Name</label><input type="text" id="name" name="name" class="form-control" value="<?= htmlspecialchars($lead['name']) ?>" required></div>
+            <div class="form-group"><label for="mobile">Mobile</label><input type="text" id="mobile" name="mobile" class="form-control" value="<?= htmlspecialchars($lead['mobile']) ?>" required></div>
+        </div>
+        <div class="form-row">
+            <div class="form-group"><label for="email">Email</label><input type="email" id="email" name="email" class="form-control" value="<?= htmlspecialchars($lead['email']) ?>"></div>
+            <div class="form-group"><label for="source">Source</label>
+                <select id="source" name="source" class="form-control">
+                    <?php foreach (['', 'Website', 'Referral', 'Social Media', 'Cold Call', 'Email Campaign', 'Other'] as $opt): ?>
+                        <option value="<?= $opt ?>" <?= $lead['source'] === $opt ? 'selected' : '' ?>><?= $opt ?: 'Select source' ?></option>
+                    <?php endforeach; ?>
+                </select>
+            </div>
+        </div>
+        <div class="form-row">
+            <div class="form-group"><label for="status">Status</label>
+                <select id="status" name="status" class="form-control">
+                    <?php foreach (['New', 'Contacted', 'Qualified', 'Converted', 'Lost'] as $opt): ?>
+                        <option value="<?= $opt ?>" <?= $lead['status'] === $opt ? 'selected' : '' ?>><?= $opt ?></option>
+                    <?php endforeach; ?>
+                </select>
+            </div>
+            <div class="form-group"><label for="assigned_to">Assigned To</label>
+                <select id="assigned_to" name="assigned_to" class="form-control">
+                    <option value="">Unassigned</option>
+                    <?php if ($sales_users_result): while ($user = $sales_users_result->fetch_assoc()): ?>
+                        <option value="<?= htmlspecialchars($user['name']) ?>" <?= $lead['assigned_to'] === $user['name'] ? 'selected' : '' ?>><?= htmlspecialchars($user['name']) ?></option>
+                    <?php endwhile; endif; ?>
+                </select>
+            </div>
+        </div>
+        <button type="submit" class="btn btn-primary">Update Lead</button>
+    </form>
+</div>

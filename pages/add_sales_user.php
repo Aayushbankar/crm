@@ -1,62 +1,50 @@
-x<x?xpxhxpx
-x$xsxuxcxcxexsxsx+x=x+x'x'x;x
-x$xexrxrxoxrx+x=x+x'x'x;x
-x
-xixfx+x(x$x_xSxExRxVxExRx[x'xRxExQxUxExSxTx_xMxExTxHxOxDx'x]x+x=x=x=x+x'xPxOxSxTx'x)x+x{x
-x+x+x+x+x$xnxaxmxex+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xnxaxmxex'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xexmxaxixlx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xexmxaxixlx'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xmxoxbxixlxex+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xmxoxbxixlxex'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xpxaxsxsxwxoxrxdx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xpxaxsxsxwxoxrxdx'x]x+x?x?x+x'x'x)x;x
-x
-x+x+x+x+xixfx+x(xexmxpxtxyx(x$xnxaxmxex)x+x|x|x+xexmxpxtxyx(x$xexmxaxixlx)x+x|x|x+xexmxpxtxyx(x$xmxoxbxixlxex)x+x|x|x+xexmxpxtxyx(x$xpxaxsxsxwxoxrxdx)x)x+x{x
-x+x+x+x+x+x+x+x+x$xexrxrxoxrx+x=x+x'xAxlxlx+xfxixexlxdxsx+xaxrxex+xrxexqxuxixrxexdx.x'x;x
-x+x+x+x+x}x+xexlxsxex+x{x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx+x=x+x$xcxoxnxnx-x>xpxrxexpxaxrxex(x"xIxNxSxExRxTx+xIxNxTxOx+xsxaxlxexsx_xuxsxexrxsx+x(xnxaxmxex,x+xexmxaxixlx,x+xmxoxbxixlxex,x+xpxaxsxsxwxoxrxdx)x+xVxAxLxUxExSx+x(x?x,x+x?x,x+x?x,x+x?x)x"x)x;x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx-x>xbxixnxdx_xpxaxrxaxmx(x"xsxsxsxsx"x,x+x$xnxaxmxex,x+x$xexmxaxixlx,x+x$xmxoxbxixlxex,x+x$xpxaxsxsxwxoxrxdx)x;x
-x+x+x+x+x+x+x+x+xixfx+x(x$xsxtxmxtx-x>xexxxexcxuxtxex(x)x)x+x{x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xsxuxcxcxexsxsx+x=x+x'xSxaxlxexsx+xuxsxexrx+xaxdxdxexdx+xsxuxcxcxexsxsxfxuxlxlxyx!x'x;x
-x+x+x+x+x+x+x+x+x}x+xexlxsxex+x{x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xexrxrxoxrx+x=x+x'xExrxrxoxrx+xaxdxdxixnxgx+xsxaxlxexsx+xuxsxexrx:x+x'x+x.x+x$xcxoxnxnx-x>xexrxrxoxrx;x
-x+x+x+x+x+x+x+x+x}x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx-x>xcxlxoxsxex(x)x;x
-x+x+x+x+x}x
-x}x
-x?x>x
-x
-x<x?xpxhxpx+xixfx+x(x$xsxuxcxcxexsxsx)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xsxuxcxcxexsxsx"x>x<xsxpxaxnx>xâxœx…x<x/xsxpxaxnx>x+x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xsxuxcxcxexsxsx)x+x?x>x<x/xdxixvx>x
-x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x<x?xpxhxpx+xixfx+x(x$xexrxrxoxrx)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xdxaxnxgxexrx"x>x<xsxpxaxnx>xâxšx xïx¸xx<x/xsxpxaxnx>x+x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xexrxrxoxrx)x+x?x>x<x/xdxixvx>x
-x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x
-x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx"x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx"x>x
-x+x+x+x+x+x+x+x+x<xhx2x>xAxdxdx+xNxexwx+xSxaxlxexsx+xUxsxexrx<x/xhx2x>x
-x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+xbxaxdxgxex-xixnxfxox"x>xIxNxSxExRxTx<x/xsxpxaxnx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<xfxoxrxmx+xmxextxhxoxdx=x"xPxOxSxTx"x+xdxaxtxax-xvxaxlxixdxaxtxex>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xrxoxwx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xnxaxmxex"x>xNxaxmxex<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xixdx=x"xnxaxmxex"x+xnxaxmxex=x"xnxaxmxex"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xpxlxaxcxexhxoxlxdxexrx=x"xExnxtxexrx+xfxuxlxlx+xnxaxmxex"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xexmxaxixlx"x>xExmxaxixlx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xexmxaxixlx"x+xixdx=x"xexmxaxixlx"x+xnxaxmxex=x"xexmxaxixlx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xpxlxaxcxexhxoxlxdxexrx=x"xExnxtxexrx+xexmxaxixlx+xaxdxdxrxexsxsx"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xrxoxwx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xmxoxbxixlxex"x>xMxoxbxixlxex<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xixdx=x"xmxoxbxixlxex"x+xnxaxmxex=x"xmxoxbxixlxex"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xpxlxaxcxexhxoxlxdxexrx=x"xExnxtxexrx+xmxoxbxixlxex+xnxuxmxbxexrx"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xpxaxsxsxwxoxrxdx"x>xPxaxsxsxwxoxrxdx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xpxaxsxsxwxoxrxdx"x+xixdx=x"xpxaxsxsxwxoxrxdx"x+xnxaxmxex=x"xpxaxsxsxwxoxrxdx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xpxlxaxcxexhxoxlxdxexrx=x"xExnxtxexrx+xpxaxsxsxwxoxrxdx"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xbxuxtxtxoxnx+xtxyxpxex=x"xsxuxbxmxixtx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xpxrxixmxaxrxyx"x>xâxžx•x+xAxdxdx+xSxaxlxexsx+xUxsxexrx<x/xbxuxtxtxoxnx>x
-x+x+x+x+x<x/xfxoxrxmx>x
-x<x/xdxixvx>x
-x
+<?php
+$success = '';
+$error = '';
+if ($_SERVER['REQUEST_METHOD'] === 'POST') {
+    $name = trim($_POST['name'] ?? '');
+    $email = trim($_POST['email'] ?? '');
+    $mobile = trim($_POST['mobile'] ?? '');
+    $password = trim($_POST['password'] ?? '');
+    if (empty($name) || empty($email)) {
+        $error = 'Name and email are required.';
+    } else {
+        $stmt = $conn->prepare("INSERT INTO sales_users (name, email, mobile, password) VALUES (?, ?, ?, ?)");
+        $stmt->bind_param("ssss", $name, $email, $mobile, $password);
+        if ($stmt->execute()) { $success = 'Sales user added!'; }
+        else { $error = 'Error: ' . $conn->error; }
+        $stmt->close();
+    }
+}
+?>
+<?php if ($success): ?><div class="alert alert-success"><?= htmlspecialchars($success) ?></div><?php endif; ?>
+<?php if ($error): ?><div class="alert alert-danger"><?= htmlspecialchars($error) ?></div><?php endif; ?>
+<div class="card">
+    <div class="card-header">
+        <h2>Add New Sales User</h2>
+        <span class="badge badge-info">INSERT</span>
+    </div>
+    <form method="POST" data-validate>
+        <div class="form-row">
+            <div class="form-group">
+                <label for="name">Name</label>
+                <input type="text" id="name" name="name" class="form-control" placeholder="Enter full name" required>
+            </div>
+            <div class="form-group">
+                <label for="email">Email</label>
+                <input type="email" id="email" name="email" class="form-control" placeholder="Enter email" required>
+            </div>
+        </div>
+        <div class="form-row">
+            <div class="form-group">
+                <label for="mobile">Mobile</label>
+                <input type="text" id="mobile" name="mobile" class="form-control" placeholder="Enter mobile number">
+            </div>
+            <div class="form-group">
+                <label for="password">Password</label>
+                <input type="password" id="password" name="password" class="form-control" placeholder="Enter password">
+            </div>
+        </div>
+        <button type="submit" class="btn btn-primary">+ Add Sales User</button>
+    </form>
+</div>

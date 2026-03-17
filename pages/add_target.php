@@ -1,63 +1,49 @@
-x<x?xpxhxpx
-x$xsxuxcxcxexsxsx+x=x+x'x'x;x
-x$xexrxrxoxrx+x=x+x'x'x;x
-x
-x/x/x+xFxextxcxhx+xsxaxlxexsx+xuxsxexrxsx+xfxoxrx+xdxrxoxpxdxoxwxnx
-x$xsxaxlxexsx_xuxsxexrxsx_xrxexsxuxlxtx+x=x+x$xcxoxnxnx-x>xqxuxexrxyx(x"xSxExLxExCxTx+xixdx,x+xnxaxmxex+xFxRxOxMx+xsxaxlxexsx_xuxsxexrxsx+xOxRxDxExRx+xBxYx+xnxaxmxex"x)x;x
-x
-xixfx+x(x$x_xSxExRxVxExRx[x'xRxExQxUxExSxTx_xMxExTxHxOxDx'x]x+x=x=x=x+x'xPxOxSxTx'x)x+x{x
-x+x+x+x+x$xsxaxlxexsx_xuxsxexrx_xixdx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xsxaxlxexsx_xuxsxexrx_xixdx'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xmxoxnxtxhx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xmxoxnxtxhx'x]x+x?x?x+x'x'x)x;x
-x+x+x+x+x$xtxaxrxgxextx_xaxmxoxuxnxtx+x=x+xtxrxixmx(x$x_xPxOxSxTx[x'xtxaxrxgxextx_xaxmxoxuxnxtx'x]x+x?x?x+x'x'x)x;x
-x
-x+x+x+x+xixfx+x(xexmxpxtxyx(x$xsxaxlxexsx_xuxsxexrx_xixdx)x+x|x|x+xexmxpxtxyx(x$xmxoxnxtxhx)x+x|x|x+xexmxpxtxyx(x$xtxaxrxgxextx_xaxmxoxuxnxtx)x)x+x{x
-x+x+x+x+x+x+x+x+x$xexrxrxoxrx+x=x+x'xAxlxlx+xfxixexlxdxsx+xaxrxex+xrxexqxuxixrxexdx.x'x;x
-x+x+x+x+x}x+xexlxsxex+x{x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx+x=x+x$xcxoxnxnx-x>xpxrxexpxaxrxex(x"xIxNxSxExRxTx+xIxNxTxOx+xtxaxrxgxextxsx+x(xsxaxlxexsx_xuxsxexrx_xixdx,x+xmxoxnxtxhx,x+xtxaxrxgxextx_xaxmxoxuxnxtx)x+xVxAxLxUxExSx+x(x?x,x+x?x,x+x?x)x"x)x;x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx-x>xbxixnxdx_xpxaxrxaxmx(x"xsxsxsx"x,x+x$xsxaxlxexsx_xuxsxexrx_xixdx,x+x$xmxoxnxtxhx,x+x$xtxaxrxgxextx_xaxmxoxuxnxtx)x;x
-x+x+x+x+x+x+x+x+xixfx+x(x$xsxtxmxtx-x>xexxxexcxuxtxex(x)x)x+x{x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xsxuxcxcxexsxsx+x=x+x'xTxaxrxgxextx+xaxdxdxexdx+xsxuxcxcxexsxsxfxuxlxlxyx!x'x;x
-x+x+x+x+x+x+x+x+x}x+xexlxsxex+x{x
-x+x+x+x+x+x+x+x+x+x+x+x+x$xexrxrxoxrx+x=x+x'xExrxrxoxrx+xaxdxdxixnxgx+xtxaxrxgxextx:x+x'x+x.x+x$xcxoxnxnx-x>xexrxrxoxrx;x
-x+x+x+x+x+x+x+x+x}x
-x+x+x+x+x+x+x+x+x$xsxtxmxtx-x>xcxlxoxsxex(x)x;x
-x+x+x+x+x}x
-x}x
-x?x>x
-x
-x<x?xpxhxpx+xixfx+x(x$xsxuxcxcxexsxsx)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xsxuxcxcxexsxsx"x>x<xsxpxaxnx>xâxœx…x<x/xsxpxaxnx>x+x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xsxuxcxcxexsxsx)x+x?x>x<x/xdxixvx>x
-x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x<x?xpxhxpx+xixfx+x(x$xexrxrxoxrx)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xaxlxexrxtx+xaxlxexrxtx-xdxaxnxgxexrx"x>x<xsxpxaxnx>xâxšx xïx¸xx<x/xsxpxaxnx>x+x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xexrxrxoxrx)x+x?x>x<x/xdxixvx>x
-x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x
-x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx"x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx"x>x
-x+x+x+x+x+x+x+x+x<xhx2x>xAxdxdx+xNxexwx+xTxaxrxgxextx<x/xhx2x>x
-x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+xbxaxdxgxex-xixnxfxox"x>xIxNxSxExRxTx<x/xsxpxaxnx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<xfxoxrxmx+xmxextxhxoxdx=x"xPxOxSxTx"x+xdxaxtxax-xvxaxlxixdxaxtxex>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xrxoxwx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xsxaxlxexsx_xuxsxexrx_xixdx"x>xSxaxlxexsx+xUxsxexrx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxexlxexcxtx+xixdx=x"xsxaxlxexsx_xuxsxexrx_xixdx"x+xnxaxmxex=x"xsxaxlxexsx_xuxsxexrx_xixdx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xoxpxtxixoxnx+xvxaxlxuxex=x"x"x>xSxexlxexcxtx+xax+xsxaxlxexsx+xuxsxexrx<x/xoxpxtxixoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xixfx+x(x$xsxaxlxexsx_xuxsxexrxsx_xrxexsxuxlxtx)x:x+xwxhxixlxex+x(x$xuxsxexrx+x=x+x$xsxaxlxexsx_xuxsxexrxsx_xrxexsxuxlxtx-x>xfxextxcxhx_xaxsxsxoxcx(x)x)x:x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xoxpxtxixoxnx+xvxaxlxuxex=x"x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xuxsxexrx[x'xixdx'x]x)x+x?x>x"x>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xuxsxexrx[x'xixdx'x]x+x.x+x'x+xâx€x”x+x'x+x.x+x$xuxsxexrx[x'xnxaxmxex'x]x)x+x?x>x<x/xoxpxtxixoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxwxhxixlxex;x+xexnxdxixfx;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xsxexlxexcxtx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xmxoxnxtxhx"x>xMxoxnxtxhx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xmxoxnxtxhx"x+xixdx=x"xmxoxnxtxhx"x+xnxaxmxex=x"xmxoxnxtxhx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xfxoxrxmx-xgxrxoxuxpx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xlxaxbxexlx+xfxoxrx=x"xtxaxrxgxextx_xaxmxoxuxnxtx"x>xTxaxrxgxextx+xAxmxoxuxnxtx<x/xlxaxbxexlx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xixdx=x"xtxaxrxgxextx_xaxmxoxuxnxtx"x+xnxaxmxex=x"xtxaxrxgxextx_xaxmxoxuxnxtx"x+xcxlxaxsxsx=x"xfxoxrxmx-xcxoxnxtxrxoxlx"x+xpxlxaxcxexhxoxlxdxexrx=x"xExnxtxexrx+xtxaxrxgxextx+xaxmxoxuxnxtx+x(xex.xgx.x,x+x1x0x0x0x0x0x)x"x+xrxexqxuxixrxexdx>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xbxuxtxtxoxnx+xtxyxpxex=x"xsxuxbxmxixtx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xpxrxixmxaxrxyx"x>xâxžx•x+xAxdxdx+xTxaxrxgxextx<x/xbxuxtxtxoxnx>x
-x+x+x+x+x<x/xfxoxrxmx>x
-x<x/xdxixvx>x
-x
+<?php
+$success = '';
+$error = '';
+$users_result = $conn->query("SELECT id, name FROM sales_users ORDER BY name");
+if ($_SERVER['REQUEST_METHOD'] === 'POST') {
+    $sales_user_id = trim($_POST['sales_user_id'] ?? '');
+    $month = trim($_POST['month'] ?? '');
+    $target_amount = trim($_POST['target_amount'] ?? '');
+    if (empty($sales_user_id) || empty($month) || empty($target_amount)) {
+        $error = 'All fields are required.';
+    } else {
+        $stmt = $conn->prepare("INSERT INTO targets (sales_user_id, month, target_amount) VALUES (?, ?, ?)");
+        $stmt->bind_param("sss", $sales_user_id, $month, $target_amount);
+        if ($stmt->execute()) { $success = 'Target added!'; }
+        else { $error = 'Error: ' . $conn->error; }
+        $stmt->close();
+    }
+}
+?>
+<?php if ($success): ?><div class="alert alert-success"><?= htmlspecialchars($success) ?></div><?php endif; ?>
+<?php if ($error): ?><div class="alert alert-danger"><?= htmlspecialchars($error) ?></div><?php endif; ?>
+<div class="card">
+    <div class="card-header">
+        <h2>Add New Target</h2>
+        <span class="badge badge-info">INSERT</span>
+    </div>
+    <form method="POST" data-validate>
+        <div class="form-row">
+            <div class="form-group">
+                <label for="sales_user_id">Sales User</label>
+                <select id="sales_user_id" name="sales_user_id" class="form-control" required>
+                    <option value="">Select a sales user</option>
+                    <?php if ($users_result): while ($user = $users_result->fetch_assoc()): ?>
+                        <option value="<?= $user['id'] ?>"><?= htmlspecialchars($user['name']) ?></option>
+                    <?php endwhile; endif; ?>
+                </select>
+            </div>
+            <div class="form-group">
+                <label for="month">Month</label>
+                <input type="text" id="month" name="month" class="form-control" placeholder="e.g. March 2026" required>
+            </div>
+        </div>
+        <div class="form-group">
+            <label for="target_amount">Target Amount</label>
+            <input type="text" id="target_amount" name="target_amount" class="form-control" placeholder="Enter target amount" required>
+        </div>
+        <button type="submit" class="btn btn-primary">+ Add Target</button>
+    </form>
+</div>

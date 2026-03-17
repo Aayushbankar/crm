@@ -1,51 +1,50 @@
-x<x?xpxhxpx
-x$xrxexsxuxlxtx+x=x+x$xcxoxnxnx-x>xqxuxexrxyx(x"xSxExLxExCxTx+xdx.xixdx,x+xdx.xlxexaxdx_xixdx,x+xlx.xnxaxmxex+xAxSx+xlxexaxdx_xnxaxmxex,x+xdx.xdxexaxlx_xvxaxlxuxex,x+xdx.xexxxpxexcxtxexdx_xcxlxoxsxex,x+xdx.xsxtxaxtxuxsx+xFxRxOxMx+xdxexaxlxsx+xdx+xLxExFxTx+xJxOxIxNx+xlxexaxdxsx+xlx+xOxNx+xdx.xlxexaxdx_xixdx+x=x+xlx.xixdx+xOxRxDxExRx+xBxYx+xdx.xixdx+xDxExSxCx"x)x;x
-x?x>x
-x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx"x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx"x>x
-x+x+x+x+x+x+x+x+x<xhx2x>xAxlxlx+xDxexaxlxsx<x/xhx2x>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx-xaxcxtxixoxnxsx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xsxexaxrxcxhx-xbxoxxx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xsxexaxrxcxhx-xixcxoxnx"x>x&x#x8x9x8x1x;x<x/xsxpxaxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xcxlxaxsxsx=x"xtxaxbxlxex-xsxexaxrxcxhx"x+xdxaxtxax-xtxaxbxlxex=x"xtxbxlx"x+xpxlxaxcxexhxoxlxdxexrx=x"xSxexaxrxcxhx.x.x.x"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+xbxaxdxgxex-xixnxfxox+xrxexcxoxrxdx-xcxoxuxnxtx"x>x<x?x=x+x$xrxexsxuxlxtx-x>xnxuxmx_xrxoxwxsx+x?x>x<x/xsxpxaxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xax+xhxrxexfx=x"xdxaxsxhxbxoxaxrxdx.xpxhxpx?xpxaxgxex=xaxdxdx_xdxexaxlx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xpxrxixmxaxrxyx+xbxtxnx-xsxmx"x>x+x+xAxdxdx<x/xax>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xixfx+x(x$xrxexsxuxlxtx-x>xnxuxmx_xrxoxwxsx+x>x+x0x)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xtxaxbxlxex-xwxrxaxpxpxexrx"x>x
-x+x+x+x+x+x+x+x+x<xtxaxbxlxex+xixdx=x"xtxbxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxhxexaxdx>x<xtxrx>x<xtxhx>xIxDx<x/xtxhx>x<xtxhx>xLxexaxdx<x/xtxhx>x<xtxhx>xVxaxlxuxex<x/xtxhx>x<xtxhx>xExxxpxexcxtxexdx+xCxlxoxsxex<x/xtxhx>x<xtxhx>xSxtxaxtxuxsx<x/xtxhx>x<xtxhx>xAxcxtxixoxnxsx<x/xtxhx>x<x/xtxrx>x<x/xtxhxexaxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxbxoxdxyx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xwxhxixlxex+x(x$xrxoxwx+x=x+x$xrxexsxuxlxtx-x>xfxextxcxhx_xaxsxsxoxcx(x)x)x:x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x$xsx+x=x+x$xrxoxwx[x'xsxtxaxtxuxsx'x]x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x$xbxcx+x=x+x'xbxaxdxgxex-xixnxfxox'x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+xixfx+x(x$xsx+x=x=x=x+x'xWxoxnx'x)x+x$xbxcx+x=x+x'xbxaxdxgxex-xsxuxcxcxexsxsx'x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+xexlxsxexixfx+x(x$xsx+x=x=x=x+x'xLxoxsxtx'x)x+x$xbxcx+x=x+x'xbxaxdxgxex-xdxaxnxgxexrx'x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+xexlxsxexixfx+x(x$xsx+x=x=x=x+x'xPxexnxdxixnxgx'x)x+x$xbxcx+x=x+x'xbxaxdxgxex-xwxaxrxnxixnxgx'x;x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxrx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx+xcxlxaxsxsx=x"xixdx-xcxoxlx"x>x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xsxtxrxoxnxgx>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xrxoxwx[x'xlxexaxdx_xnxaxmxex'x]x+x?x:x+x'xLxexaxdx+x#x'x.x$xrxoxwx[x'xlxexaxdx_xixdx'x]x)x+x?x>x<x/xsxtxrxoxnxgx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx+xsxtxyxlxex=x"xfxoxnxtx-xwxexixgxhxtx:x6x0x0x;x"x>x&x#x8x3x7x7x;x<x?x=x+xnxuxmxbxexrx_xfxoxrxmxaxtx(x(xfxlxoxaxtx)x$xrxoxwx[x'xdxexaxlx_xvxaxlxuxex'x]x)x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xrxoxwx[x'xexxxpxexcxtxexdx_xcxlxoxsxex'x]x+x?x:x+x'xâx€x”x'x)x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+x<x?x=x+x$xbxcx+x?x>x"x>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xsx+x?x:x+x'xâx€x”x'x)x+x?x>x<x/xsxpxaxnx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xdxixvx+xcxlxaxsxsx=x"xaxcxtxixoxnxsx-xcxexlxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xax+xhxrxexfx=x"xdxaxsxhxbxoxaxrxdx.xpxhxpx?xpxaxgxex=xexdxixtx_xdxexaxlx&xixdx=x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xoxuxtxlxixnxex+xbxtxnx-xixcxoxnx"x+xtxixtxlxex=x"xExdxixtx"x>x&x#x9x9x9x8x;x<x/xax>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xbxuxtxtxoxnx+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xdxaxnxgxexrx+xbxtxnx-xixcxoxnx"x+xoxnxcxlxixcxkx=x"xcxoxnxfxixrxmxDxexlxextxex(x'xdxaxsxhxbxoxaxrxdx.xpxhxpx?xdxexlxextxex=x1x&xtxaxbxlxex=xdxexaxlxsx&xixdx=x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x'x)x"x+xtxixtxlxex=x"xDxexlxextxex"x>x&xtxixmxexsx;x<x/xbxuxtxtxoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xtxrx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxwxhxixlxex;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xtxbxoxdxyx>x
-x+x+x+x+x+x+x+x+x<x/xtxaxbxlxex>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xexlxsxex:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xexmxpxtxyx-xsxtxaxtxex"x>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xexmxpxtxyx-xixcxoxnx"x>xDx<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xhx3x>xNxox+xdxexaxlxsx<x/xhx3x>x
-x+x+x+x+x+x+x+x+x<xpx>xCxrxexaxtxex+xyxoxuxrx+xfxixrxsxtx+xdxexaxlx.x<x/xpx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x<x/xdxixvx>x
-x
+<?php
+$result = $conn->query("SELECT d.id, d.lead_id, l.name AS lead_name, d.deal_value, d.expected_close, d.status FROM deals d LEFT JOIN leads l ON d.lead_id = l.id ORDER BY d.id DESC");
+?>
+<div class="card">
+    <div class="card-header">
+        <h2>All Deals</h2>
+        <div class="card-header-actions">
+            <div class="search-box">
+                <span class="search-icon">&#8981;</span>
+                <input type="text" class="table-search" data-table="tbl" placeholder="Search...">
+            </div>
+            <span class="badge badge-info record-count"><?= $result->num_rows ?></span>
+            <a href="dashboard.php?page=add_deal" class="btn btn-primary btn-sm">+ Add</a>
+        </div>
+    </div>
+    <?php if ($result->num_rows > 0): ?>
+    <div class="table-wrapper">
+        <table id="tbl">
+            <thead><tr><th>ID</th><th>Lead</th><th>Value</th><th>Expected Close</th><th>Status</th><th>Actions</th></tr></thead>
+            <tbody>
+                <?php while ($row = $result->fetch_assoc()):
+                    $s = $row['status'];
+                    $bc = 'badge-info';
+                    if ($s === 'Won') $bc = 'badge-success';
+                    elseif ($s === 'Lost') $bc = 'badge-danger';
+                    elseif ($s === 'Pending') $bc = 'badge-warning';
+                ?>
+                <tr>
+                    <td class="id-col"><?= $row['id'] ?></td>
+                    <td><strong><?= htmlspecialchars($row['lead_name'] ?: 'Lead #'.$row['lead_id']) ?></strong></td>
+                    <td style="font-weight:600;">&#8377;<?= number_format((float)$row['deal_value']) ?></td>
+                    <td><?= htmlspecialchars($row['expected_close'] ?: '-') ?></td>
+                    <td><span class="badge <?= $bc ?>"><?= htmlspecialchars($s ?: '-') ?></span></td>
+                    <td><div class="actions-cell">
+                        <a href="dashboard.php?page=edit_deal&id=<?= $row['id'] ?>" class="btn btn-outline btn-icon" title="Edit">&#9998;</a>
+                        <button class="btn btn-danger btn-icon" onclick="confirmDelete('dashboard.php?delete=1&table=deals&id=<?= $row['id'] ?>')" title="Delete">&times;</button>
+                    </div></td>
+                </tr>
+                <?php endwhile; ?>
+            </tbody>
+        </table>
+    </div>
+    <?php else: ?>
+    <div class="empty-state">
+        <div class="empty-icon">D</div>
+        <h3>No deals</h3>
+        <p>Create your first deal.</p>
+    </div>
+    <?php endif; ?>
+</div>

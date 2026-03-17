@@ -1,41 +1,40 @@
-x<x?xpxhxpx
-x$xrxexsxuxlxtx+x=x+x$xcxoxnxnx-x>xqxuxexrxyx(x"xSxExLxExCxTx+xixdx,x+xuxsxexrxnxaxmxex+xFxRxOxMx+xaxdxmxixnxsx+xOxRxDxExRx+xBxYx+xixdx+xDxExSxCx"x)x;x
-x?x>x
-x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx"x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx"x>x
-x+x+x+x+x+x+x+x+x<xhx2x>xAxlxlx+xAxdxmxixnxsx<x/xhx2x>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xcxaxrxdx-xhxexaxdxexrx-xaxcxtxixoxnxsx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xsxexaxrxcxhx-xbxoxxx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xsxexaxrxcxhx-xixcxoxnx"x>x&x#x8x9x8x1x;x<x/xsxpxaxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xixnxpxuxtx+xtxyxpxex=x"xtxexxxtx"x+xcxlxaxsxsx=x"xtxaxbxlxex-xsxexaxrxcxhx"x+xdxaxtxax-xtxaxbxlxex=x"xaxdxmxixnxsxTxaxbxlxex"x+xpxlxaxcxexhxoxlxdxexrx=x"xSxexaxrxcxhx.x.x.x"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xsxpxaxnx+xcxlxaxsxsx=x"xbxaxdxgxex+xbxaxdxgxex-xixnxfxox+xrxexcxoxrxdx-xcxoxuxnxtx"x>x<x?x=x+x$xrxexsxuxlxtx-x>xnxuxmx_xrxoxwxsx+x?x>x<x/xsxpxaxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xax+xhxrxexfx=x"xdxaxsxhxbxoxaxrxdx.xpxhxpx?xpxaxgxex=xaxdxdx_xaxdxmxixnx"x+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xpxrxixmxaxrxyx+xbxtxnx-xsxmx"x>x+x+xAxdxdx<x/xax>x
-x+x+x+x+x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xixfx+x(x$xrxexsxuxlxtx-x>xnxuxmx_xrxoxwxsx+x>x+x0x)x:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xtxaxbxlxex-xwxrxaxpxpxexrx"x>x
-x+x+x+x+x+x+x+x+x<xtxaxbxlxex+xixdx=x"xaxdxmxixnxsxTxaxbxlxex"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxhxexaxdx>x<xtxrx>x<xtxhx>xIxDx<x/xtxhx>x<xtxhx>xUxsxexrxnxaxmxex<x/xtxhx>x<xtxhx>xAxcxtxixoxnxsx<x/xtxhx>x<x/xtxrx>x<x/xtxhxexaxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<xtxbxoxdxyx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xwxhxixlxex+x(x$xrxoxwx+x=x+x$xrxexsxuxlxtx-x>xfxextxcxhx_xaxsxsxoxcx(x)x)x:x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxrx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx+xcxlxaxsxsx=x"xixdx-xcxoxlx"x>x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xsxtxrxoxnxgx>x<x?x=x+xhxtxmxlxsxpxexcxixaxlxcxhxaxrxsx(x$xrxoxwx[x'xuxsxexrxnxaxmxex'x]x)x+x?x>x<x/xsxtxrxoxnxgx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xtxdx>x<xdxixvx+xcxlxaxsxsx=x"xaxcxtxixoxnxsx-xcxexlxlx"x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<xbxuxtxtxoxnx+xcxlxaxsxsx=x"xbxtxnx+xbxtxnx-xdxaxnxgxexrx+xbxtxnx-xixcxoxnx"x+xoxnxcxlxixcxkx=x"xcxoxnxfxixrxmxDxexlxextxex(x'xdxaxsxhxbxoxaxrxdx.xpxhxpx?xdxexlxextxex=x1x&xtxaxbxlxex=xaxdxmxixnxsx&xixdx=x<x?x=x+x$xrxoxwx[x'xixdx'x]x+x?x>x'x)x"x+xtxixtxlxex=x"xDxexlxextxex"x>x&xtxixmxexsx;x<x/xbxuxtxtxoxnx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xdxixvx>x<x/xtxdx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x/xtxrx>x
-x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x+x<x?xpxhxpx+xexnxdxwxhxixlxex;x+x?x>x
-x+x+x+x+x+x+x+x+x+x+x+x+x<x/xtxbxoxdxyx>x
-x+x+x+x+x+x+x+x+x<x/xtxaxbxlxex>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xexlxsxex:x+x?x>x
-x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xexmxpxtxyx-xsxtxaxtxex"x>x
-x+x+x+x+x+x+x+x+x<xdxixvx+xcxlxaxsxsx=x"xexmxpxtxyx-xixcxoxnx"x>xAx<x/xdxixvx>x
-x+x+x+x+x+x+x+x+x<xhx3x>xNxox+xaxdxmxixnxsx<x/xhx3x>x
-x+x+x+x+x+x+x+x+x<xpx>xAxdxdx+xaxnx+xaxdxmxixnx+xtxox+xgxextx+xsxtxaxrxtxexdx.x<x/xpx>x
-x+x+x+x+x<x/xdxixvx>x
-x+x+x+x+x<x?xpxhxpx+xexnxdxixfx;x+x?x>x
-x<x/xdxixvx>x
-x
+<?php
+$result = $conn->query("SELECT id, username FROM admins ORDER BY id DESC");
+?>
+<div class="card">
+    <div class="card-header">
+        <h2>All Admins</h2>
+        <div class="card-header-actions">
+            <div class="search-box">
+                <span class="search-icon">&#8981;</span>
+                <input type="text" class="table-search" data-table="adminsTable" placeholder="Search...">
+            </div>
+            <span class="badge badge-info record-count"><?= $result->num_rows ?></span>
+            <a href="dashboard.php?page=add_admin" class="btn btn-primary btn-sm">+ Add</a>
+        </div>
+    </div>
+    <?php if ($result->num_rows > 0): ?>
+    <div class="table-wrapper">
+        <table id="adminsTable">
+            <thead><tr><th>ID</th><th>Username</th><th>Actions</th></tr></thead>
+            <tbody>
+                <?php while ($row = $result->fetch_assoc()): ?>
+                <tr>
+                    <td class="id-col"><?= $row['id'] ?></td>
+                    <td><strong><?= htmlspecialchars($row['username']) ?></strong></td>
+                    <td><div class="actions-cell">
+                        <button class="btn btn-danger btn-icon" onclick="confirmDelete('dashboard.php?delete=1&table=admins&id=<?= $row['id'] ?>')" title="Delete">&times;</button>
+                    </div></td>
+                </tr>
+                <?php endwhile; ?>
+            </tbody>
+        </table>
+    </div>
+    <?php else: ?>
+    <div class="empty-state">
+        <div class="empty-icon">A</div>
+        <h3>No admins</h3>
+        <p>Add an admin to get started.</p>
+    </div>
+    <?php endif; ?>
+</div>
